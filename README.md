@@ -1,2 +1,1 @@
 # VARU_NET
-nnnnnnn
